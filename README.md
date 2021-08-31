@@ -1,4 +1,8 @@
-### Hi there 👋
+## I'm a MAC student 
+## Improving through knowlege :scroll:
+
+
+
 
 <!--
 **AlekseyOberstein/AlekseyOberstein** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
