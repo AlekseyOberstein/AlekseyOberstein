@@ -1,4 +1,4 @@
-### I'm a MAC student 
+### MAC student 
 ### Improving through knowlege :scroll:
 
 
